@@ -1,0 +1,1 @@
+# MEGA-hesapmakinesi-hafta1
